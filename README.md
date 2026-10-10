@@ -10,7 +10,7 @@ wip
   
    INFO
 
-꒱꒱  I'm able to do a pt skin commisions👀 please whisper me or preferably contact me on discord (@sp6kee)
+꒱꒱  I'm able to do a pt skin commisions👀 please whisper me or preferably contact me on discord (@spokefever)
    
 ꒱꒱  do not copy any of my work/skins, **ask** b4 taking insp
 
