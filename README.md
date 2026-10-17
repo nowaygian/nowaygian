@@ -2,8 +2,8 @@
   <img src="https://files.catbox.moe/ihibpz.png" width="100%" />
 </a>
 
-<font color="#825548">𝜗 i know i must destroy it
- 　　　　　　₊　‹ or it will destroy me</font>
+<font color="#825548">𝜗 why is it that some were given
+ 　　　　　　₊　‹ the role of villain?</font>
 
   <a href="">
   <img src="https://files.catbox.moe/xtnh0k.png" width="100%" />
