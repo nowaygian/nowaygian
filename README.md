@@ -23,3 +23,7 @@ IMWORKING ON THISIS
 ꒱꒱  spoke is my favourite oat, if it isn't obvious enough
 
 ( ˶°ㅁ°) !! ㅤㅤ  **_Mostly offtab/busy_**
+
+  <a href="">
+  <img src="https://files.catbox.moe/qfq96u.gif" width="100%" />
+</a>
